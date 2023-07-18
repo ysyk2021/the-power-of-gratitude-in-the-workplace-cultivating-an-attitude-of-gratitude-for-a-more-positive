@@ -1,8 +1,5 @@
 # Introduction
 
-Introduction: Overview
-======================
-
 Gratitude is a powerful emotion that can have a profound impact on our well-being and relationships with others. In recent years, there has been growing interest in the role of gratitude in the workplace, and how it can contribute to a more positive work experience. In this book, we will explore the power of gratitude in the workplace and how it can be cultivated to create a more supportive and productive work environment.
 
 Defining Gratitude
