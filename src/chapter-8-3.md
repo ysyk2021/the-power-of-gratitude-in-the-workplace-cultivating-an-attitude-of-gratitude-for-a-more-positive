@@ -1,4 +1,4 @@
-Measuring and Evaluating Gratitude Performance - Adjusting Gratitude Strategies as Needed
+Adjusting Gratitude Strategies as Needed
 ====================================================================================================
 
 Measuring and evaluating gratitude performance is an important part of cultivating an attitude of gratitude in the workplace. By tracking progress and success, individuals and organizations can identify areas for improvement and measure the impact of gratitude practices on overall well-being and productivity. In this chapter, we'll explore the importance of adjusting gratitude strategies as needed based on these evaluations.

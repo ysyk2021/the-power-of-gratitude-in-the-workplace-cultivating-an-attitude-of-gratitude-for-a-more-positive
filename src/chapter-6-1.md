@@ -1,4 +1,4 @@
-Improving Well-Being Through Gratitude - Developing Strategies for Improving Well-Being Through Gratitude
+Developing Strategies for Improving Well-Being Through Gratitude
 ====================================================================================================================
 
 Gratitude is a powerful tool for improving well-being in the workplace. By focusing on the positive aspects of our lives, individuals can experience greater job satisfaction, improved mental health, and increased resilience. In this chapter, we'll explore some effective strategies for improving well-being through gratitude.

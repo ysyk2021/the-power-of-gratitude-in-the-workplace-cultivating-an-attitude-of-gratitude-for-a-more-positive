@@ -1,4 +1,4 @@
-Measuring and Evaluating Gratitude Performance - Understanding the Importance of Measuring and Evaluating Gratitude Performance
+Understanding the Importance of Measuring and Evaluating Gratitude Performance
 ==========================================================================================================================================
 
 Measuring and evaluating gratitude performance is a crucial step in cultivating an attitude of gratitude in the workplace. By tracking progress and success, individuals and organizations can identify areas for improvement and measure the impact of gratitude practices on overall well-being and productivity. In this chapter, we'll explore the importance of measuring and evaluating gratitude performance.

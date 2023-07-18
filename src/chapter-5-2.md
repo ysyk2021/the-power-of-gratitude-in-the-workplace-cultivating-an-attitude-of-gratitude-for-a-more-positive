@@ -1,4 +1,4 @@
-Using Gratitude to Enhance Relationships - Strengthening Connections with Colleagues and Superiors
+Strengthening Connections with Colleagues and Superiors
 =============================================================================================================
 
 Gratitude is a powerful emotion that can help to strengthen relationships and build trust in the workplace. By expressing appreciation for the contributions of others, individuals can create a more positive and supportive work environment. In this chapter, we'll explore some effective ways to use gratitude to enhance relationships with colleagues and superiors.

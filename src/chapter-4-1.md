@@ -1,4 +1,4 @@
-Practicing Gratitude at Work - Developing Strategies for Practicing Gratitude at Work
+Developing Strategies for Practicing Gratitude at Work
 ================================================================================================
 
 Practicing gratitude in the workplace is an effective way to cultivate a more positive and supportive work environment. By focusing on the positive aspects of our work and expressing appreciation for the contributions of others, individuals can improve their own well-being as well as that of their colleagues. In this chapter, we'll explore some effective strategies for practicing gratitude at work.

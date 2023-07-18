@@ -1,4 +1,4 @@
-Using Gratitude to Enhance Relationships - Developing Strategies for Using Gratitude to Enhance Workplace Relationships
+Developing Strategies for Using Gratitude to Enhance Workplace Relationships
 ==================================================================================================================================
 
 Gratitude is a powerful emotion that can help to strengthen relationships and build trust in the workplace. By expressing appreciation for the contributions of others, individuals can create a more positive and supportive work environment. In this chapter, we'll explore some effective strategies for using gratitude to enhance workplace relationships.

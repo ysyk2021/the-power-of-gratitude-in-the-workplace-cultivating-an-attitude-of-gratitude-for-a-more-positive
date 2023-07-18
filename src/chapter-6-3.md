@@ -1,4 +1,4 @@
-Improving Well-Being Through Gratitude - Encouraging Positive Thinking and Resilience through Gratitude
+Encouraging Positive Thinking and Resilience through Gratitude
 ==================================================================================================================
 
 Gratitude is a powerful tool for improving well-being and promoting resilience in the workplace. By focusing on the positive aspects of our lives, individuals can experience greater job satisfaction, improved mental health, and increased resilience. In this chapter, we'll explore some effective ways to improve well-being and promote resilience through gratitude.

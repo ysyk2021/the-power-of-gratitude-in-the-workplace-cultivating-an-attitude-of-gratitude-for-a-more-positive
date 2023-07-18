@@ -1,4 +1,4 @@
-Leveraging Technology and Tools for Gratitude - Using Technology and Data to Track and Enhance Gratitude Efforts
+Using Technology and Data to Track and Enhance Gratitude Efforts
 ===========================================================================================================================
 
 Leveraging technology and tools can enhance gratitude efforts in the workplace. By using data and analytics to track progress and identify areas for improvement, individuals and organizations can improve their gratitude practices and create a more positive work environment. In this chapter, we'll explore some effective ways to leverage technology and tools for gratitude.

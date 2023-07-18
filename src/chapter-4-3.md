@@ -1,4 +1,4 @@
-Practicing Gratitude at Work - Incorporating Gratitude Practices into Daily Routines
+Incorporating Gratitude Practices into Daily Routines
 ===============================================================================================
 
 Incorporating gratitude practices into daily routines is an effective way to cultivate a more grateful mindset and experience the benefits of this powerful emotion more consistently. By taking time each day to reflect on what you're grateful for, individuals can increase their sense of well-being, improve their mental health, and enhance their overall work experience. In this chapter, we'll explore some effective ways to incorporate gratitude practices into daily routines.

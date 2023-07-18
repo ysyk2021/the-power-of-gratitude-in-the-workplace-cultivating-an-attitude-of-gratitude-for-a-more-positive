@@ -1,4 +1,4 @@
-Improving Well-Being Through Gratitude - Promoting Self-Care and Stress Reduction Through Gratitude Practices
+Promoting Self-Care and Stress Reduction Through Gratitude Practices
 ========================================================================================================================
 
 Gratitude is a powerful emotion that can improve well-being and promote self-care in the workplace. By focusing on the positive aspects of our lives, individuals can experience greater job satisfaction, improved mental health, and increased resilience. In this chapter, we'll explore some effective ways to improve well-being through gratitude practices.

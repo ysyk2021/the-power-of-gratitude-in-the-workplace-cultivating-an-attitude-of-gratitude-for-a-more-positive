@@ -1,4 +1,4 @@
-Using Gratitude to Enhance Relationships - Resolving Conflicts Through a Lens of Gratitude
+Resolving Conflicts Through a Lens of Gratitude
 =====================================================================================================
 
 Gratitude is a powerful tool for enhancing relationships in the workplace. By expressing appreciation for the contributions of others, individuals can build stronger relationships and create a more positive and supportive work environment. In this chapter, we'll explore how gratitude can be used to resolve conflicts through a lens of gratitude.

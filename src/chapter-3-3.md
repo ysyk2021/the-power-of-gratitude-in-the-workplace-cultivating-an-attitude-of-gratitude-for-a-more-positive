@@ -1,4 +1,4 @@
-Developing a Culture of Gratitude - Encouraging Ownership and Follow-Through
+Encouraging Ownership and Follow-Through
 =======================================================================================
 
 Developing a culture of gratitude in the workplace requires more than just implementing gratitude practices; it also requires encouraging ownership and follow-through among employees. In this chapter, we'll explore some effective ways to develop a culture of gratitude in the workplace by encouraging ownership and follow-through.

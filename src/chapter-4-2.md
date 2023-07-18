@@ -1,4 +1,4 @@
-Practicing Gratitude at Work - Expressing Gratitude to Colleagues and Superiors
+Expressing Gratitude to Colleagues and Superiors
 ==========================================================================================
 
 One effective strategy for practicing gratitude in the workplace is by expressing gratitude to colleagues and superiors. By acknowledging the contributions of others and showing appreciation for their efforts, we can strengthen relationships, build trust, and create a more positive work environment. In this chapter, we'll explore some effective ways to express gratitude to colleagues and superiors.
