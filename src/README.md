@@ -19,5 +19,4 @@ Creating a culture of gratitude requires intentional effort and commitment from 
 
 In this book, we will explore the power of gratitude in the workplace and provide strategies for cultivating an attitude of gratitude. We will examine the benefits of gratitude, historical perspectives on gratitude theory and practice, and practical ways to develop a culture of gratitude in the workplace. Ultimately, this book aims to provide a comprehensive guide for individuals and organizations looking to harness the power of gratitude for a more positive work experience.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
