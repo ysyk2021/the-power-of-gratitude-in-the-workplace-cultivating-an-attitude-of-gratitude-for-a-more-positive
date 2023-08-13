@@ -3,7 +3,7 @@ The Challenges and Opportunities of Cultivating an Attitude of Gratitude in the 
 
 In today's fast-paced and competitive corporate environment, cultivating gratitude within the workplace can bring numerous challenges as well as exciting opportunities. This chapter explores the potential hurdles and benefits associated with fostering an attitude of gratitude among employees.
 
-1. Barriers to Gratitude
+1\. Barriers to Gratitude
 ------------------------
 
 ### a. Busy Work Culture
@@ -18,7 +18,7 @@ Employees can feel demotivated if their hard work goes unnoticed or unappreciate
 
 Some individuals may struggle to adopt a positive mindset due to various personal reasons, such as stress, burnout, or dissatisfaction with their job. Overcoming negativity and instilling gratitude requires targeted efforts to shift perspectives and promote a more optimistic outlook.
 
-2. Opportunities for Gratitude
+2\. Opportunities for Gratitude
 ------------------------------
 
 ### a. Enhanced Employee Engagement
@@ -37,7 +37,7 @@ Gratitude has been scientifically proven to have a positive impact on mental hea
 
 In a competitive job market, organizations must focus on retaining their valued employees. A culture of gratitude plays a crucial role in building strong relationships between employers and staff. When employees feel appreciated, they are more likely to stay committed to the organization, reducing turnover rates and attracting top talent.
 
-3. Strategies for Cultivating Gratitude
+3\. Strategies for Cultivating Gratitude
 ---------------------------------------
 
 ### a. Leadership Role Modeling
