@@ -32,5 +32,3 @@ Conclusion
 ----------
 
 Exploring the historical perspectives on gratitude theory and practice provides valuable insights into its universal significance. Gratitude has transcended time and cultural boundaries, remaining a powerful force that connects individuals and strengthens societal bonds. Recognizing the historical roots of gratitude allows us to harness its transformative potential in the workplace, creating a more positive and fulfilling work experience for all.
-
-*Please note that while this chapter provides an overview of gratitude's historical significance, the focus will primarily be on applications within the workplace context.*
