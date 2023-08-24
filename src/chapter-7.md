@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology and Tools for Gratitude
-========================================================
 
 In this chapter, we will explore how technology and tools can be used to cultivate an attitude of gratitude in the workplace.
 

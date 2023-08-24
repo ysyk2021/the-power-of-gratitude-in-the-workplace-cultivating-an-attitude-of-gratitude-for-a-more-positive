@@ -1,5 +1,3 @@
-Expressing Gratitude to Colleagues and Superiors
-=========================================================
 
 In any workplace, fostering a culture of gratitude not only enhances individual well-being but also strengthens professional relationships. When we express gratitude to our colleagues and superiors, we create a positive work environment that promotes productivity, teamwork, and overall job satisfaction. This chapter explores effective ways to express gratitude in the workplace and highlights its impact on personal and professional growth.
 

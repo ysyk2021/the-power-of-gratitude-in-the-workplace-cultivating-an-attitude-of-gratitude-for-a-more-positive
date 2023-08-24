@@ -1,5 +1,3 @@
-Historical Perspectives on Gratitude Theory and Practice
-===================================================================
 
 In this chapter, we will explore the historical roots of gratitude theory and practice, examining how gratitude has been understood and valued across different cultures and time periods. By delving into the rich tapestry of history, we can gain a deeper appreciation for the significance of gratitude in the workplace and its impact on our overall well-being.
 

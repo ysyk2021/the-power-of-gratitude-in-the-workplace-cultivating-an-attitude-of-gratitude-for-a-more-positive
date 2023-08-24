@@ -1,5 +1,3 @@
-Promoting Self-care and Stress Reduction through Gratitude Practices
-===============================================================================
 
 In today's fast-paced work environment, it's common for individuals to experience high levels of stress and burnout. However, by incorporating gratitude practices into our daily routine, we can cultivate an attitude of self-care and effectively reduce stress. This chapter explores various gratitude exercises that promote self-care and help create a more positive work experience.
 

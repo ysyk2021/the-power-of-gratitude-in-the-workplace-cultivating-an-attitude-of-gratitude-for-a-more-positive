@@ -1,5 +1,3 @@
-Chapter 5: Using Gratitude to Enhance Relationships
-===================================================
 
 In this chapter, we'll explore how to use gratitude to enhance workplace relationships. By expressing appreciation for colleagues and strengthening connections, we can create a more positive and supportive work environment.
 

@@ -1,5 +1,3 @@
-Developing Strategies for Using Gratitude to Enhance Workplace Relationships
-=====================================================================================
 
 In this chapter, we will explore various strategies that can be employed to cultivate an attitude of gratitude in the workplace, with a specific focus on enhancing workplace relationships. By expressing appreciation and acknowledging the contributions of others, we can foster a more positive work environment and build stronger connections among colleagues.
 

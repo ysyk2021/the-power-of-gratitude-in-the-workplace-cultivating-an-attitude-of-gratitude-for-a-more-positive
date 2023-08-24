@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Gratitude Performance
-=========================================================
 
 In this chapter, we'll explore the importance of measuring and evaluating gratitude performance in the workplace. By tracking progress and success, we can adjust our gratitude strategies as needed and ensure that we are reaping the full benefits of a grateful work culture.
 

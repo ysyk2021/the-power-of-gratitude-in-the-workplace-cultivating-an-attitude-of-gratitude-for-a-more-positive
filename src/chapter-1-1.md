@@ -1,5 +1,3 @@
-Defining Gratitude and its Importance in the Workplace
-=================================================================
 
 In this chapter, we will explore the concept of gratitude and delve into its significance in creating a positive work experience. We will examine how practicing gratitude in the workplace can enhance employee well-being, foster stronger relationships, and contribute to overall organizational success.
 

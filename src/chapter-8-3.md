@@ -1,5 +1,3 @@
-Adjusting Gratitude Strategies as Needed
-===================================================
 
 In this chapter, we will explore the importance of adapting gratitude strategies in the workplace to ensure a continuously positive work experience. While gratitude is a powerful tool for creating a harmonious and motivating work environment, it is essential to recognize that different situations and individuals may require varying approaches to effectively cultivate gratitude.
 

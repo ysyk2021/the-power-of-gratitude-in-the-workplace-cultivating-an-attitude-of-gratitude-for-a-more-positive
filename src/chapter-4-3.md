@@ -1,4 +1,3 @@
-# Incorporating Gratitude Practices into Daily Routines
 
 In this chapter, we will explore the significance of incorporating gratitude practices into our daily work routines. By cultivating an attitude of gratitude, we can enhance our work experience, foster positive relationships, and promote a harmonious workplace environment. This chapter will provide practical tips and strategies for integrating gratitude into our everyday professional lives.
 

@@ -1,5 +1,3 @@
-Chapter 9: Conclusion: Mastering the Power of Gratitude in the Workplace
-========================================================================
 
 The Importance of Gratitude for Personal and Organizational Success
 -------------------------------------------------------------------

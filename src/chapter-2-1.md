@@ -1,5 +1,3 @@
-Recognizing the Benefits of Gratitude for Individuals and Organizations in the Workplace
-===================================================================================================
 
 In today's fast-paced and competitive work environments, fostering a positive atmosphere can greatly impact the success and well-being of individuals and organizations. One powerful tool that has gained increasing attention is gratitude. The act of expressing and cultivating gratitude has numerous benefits, both for individuals and the organizations they belong to.
 

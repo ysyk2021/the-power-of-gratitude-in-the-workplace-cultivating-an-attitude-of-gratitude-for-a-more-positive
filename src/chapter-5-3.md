@@ -1,5 +1,3 @@
-Resolving Conflicts Through a Lens of Gratitude
-========================================================
 
 Conflicts in the workplace are inevitable, but they don't have to leave a negative impact on our work experience. By approaching conflicts through a lens of gratitude, we can transform them into opportunities for growth, understanding, and stronger relationships. In this chapter, we will explore how practicing gratitude can help resolve conflicts and foster a more positive work environment.
 

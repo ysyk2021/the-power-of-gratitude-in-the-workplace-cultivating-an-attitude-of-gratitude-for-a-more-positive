@@ -1,5 +1,3 @@
-The Challenges and Opportunities of Cultivating an Attitude of Gratitude in the Workplace
-====================================================================================================
 
 In today's fast-paced and competitive corporate environment, cultivating gratitude within the workplace can bring numerous challenges as well as exciting opportunities. This chapter explores the potential hurdles and benefits associated with fostering an attitude of gratitude among employees.
 

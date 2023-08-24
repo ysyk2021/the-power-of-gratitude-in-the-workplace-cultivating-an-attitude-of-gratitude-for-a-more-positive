@@ -1,4 +1,3 @@
-# Conclusion
 
 The Importance of Gratitude for Personal and Organizational Success
 -------------------------------------------------------------------

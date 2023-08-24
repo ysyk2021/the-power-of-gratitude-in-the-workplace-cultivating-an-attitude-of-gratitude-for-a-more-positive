@@ -1,4 +1,3 @@
-# Encouraging Positive Thinking and Resilience through Gratitude
 
 In today's fast-paced and often stressful work environments, cultivating an attitude of gratitude can have a transformative effect on employees and their overall work experience. This chapter explores the power of gratitude in encouraging positive thinking and resilience in the workplace. By fostering a culture of appreciation and gratitude, organizations can enhance employee well-being, foster stronger relationships, and improve overall workplace positivity.
 

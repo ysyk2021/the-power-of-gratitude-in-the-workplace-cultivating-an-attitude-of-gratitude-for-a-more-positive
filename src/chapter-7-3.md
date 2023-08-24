@@ -1,5 +1,3 @@
-Using Technology and Data to Track and Enhance Gratitude Efforts
-===========================================================================
 
 In today's fast-paced and technologically advanced workplaces, it is crucial to leverage technology and data to cultivate an attitude of gratitude. By incorporating these tools into our gratitude initiatives, we can enhance the overall employee experience and create a more positive work environment. This chapter explores how organizations can effectively use technology and data to track and enhance gratitude efforts.
 

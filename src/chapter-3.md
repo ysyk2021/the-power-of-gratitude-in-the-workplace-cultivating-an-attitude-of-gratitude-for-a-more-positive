@@ -1,5 +1,3 @@
-Chapter 3: Developing a Culture of Gratitude
-============================================
 
 In this chapter, we'll explore strategies for developing a culture of gratitude in the workplace. By fostering an environment where gratitude is valued and practiced, we can create a more positive and supportive workplace culture.
 

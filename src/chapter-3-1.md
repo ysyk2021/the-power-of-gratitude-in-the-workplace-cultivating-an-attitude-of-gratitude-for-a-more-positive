@@ -1,5 +1,3 @@
-Developing Strategies for Creating a Culture of Gratitude in the Workplace
-=====================================================================================
 
 In this chapter, we will explore various strategies that organizations can implement to foster a culture of gratitude in the workplace. By cultivating an attitude of gratitude among employees, organizations can experience a more positive work environment and enhance overall productivity and engagement.
 

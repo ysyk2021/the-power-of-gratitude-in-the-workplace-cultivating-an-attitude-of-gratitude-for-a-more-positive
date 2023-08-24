@@ -1,5 +1,3 @@
-Identifying Different Types of Gratitude and Their Effects on Workplace Culture
-========================================================================================
 
 Gratitude is a powerful emotion that can have a significant impact on workplace culture. When practiced regularly, gratitude can foster a more positive work experience for both employees and employers. In this chapter, we will explore different types of gratitude and their effects on creating a thriving work environment.
 

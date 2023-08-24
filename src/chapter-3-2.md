@@ -1,5 +1,3 @@
-Fostering Clear Communication and Expectations around Gratitude
-==========================================================================
 
 In any workplace, fostering a culture of gratitude starts with clear communication and setting expectations. When gratitude becomes a part of daily interactions, it can significantly enhance the overall work experience for both individuals and teams. This chapter explores practical strategies to establish clear communication channels and expectations around gratitude in the workplace.
 

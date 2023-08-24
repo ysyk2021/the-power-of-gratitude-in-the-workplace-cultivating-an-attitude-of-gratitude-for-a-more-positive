@@ -1,5 +1,3 @@
-Selecting and Implementing Tools that are Best Suited to Your Gratitude Goals
-========================================================================================
 
 In this chapter, we will explore various tools and strategies that can help you cultivate an attitude of gratitude in the workplace. By selecting and implementing these tools effectively, you can enhance your work experience and foster a more positive environment for yourself and your colleagues.
 

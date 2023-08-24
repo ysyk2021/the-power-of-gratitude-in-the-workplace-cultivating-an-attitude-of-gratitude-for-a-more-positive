@@ -1,5 +1,3 @@
-Understanding the Importance of Measuring and Evaluating Gratitude Performance
-=======================================================================================
 
 In this chapter, we will explore the significance of measuring and evaluating gratitude performance in the workplace. By understanding how to quantify and assess gratitude, organizations can foster a more positive work environment and enhance employee well-being.
 

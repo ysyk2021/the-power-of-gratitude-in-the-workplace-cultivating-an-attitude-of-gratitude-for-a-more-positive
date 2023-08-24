@@ -1,5 +1,3 @@
-Developing Strategies for Practicing Gratitude at Work
-===============================================================
 
 In this chapter, we will explore various strategies that can help cultivate an attitude of gratitude in the workplace. By adopting these strategies, individuals can promote a more positive work experience and foster a supportive environment for everyone involved.
 

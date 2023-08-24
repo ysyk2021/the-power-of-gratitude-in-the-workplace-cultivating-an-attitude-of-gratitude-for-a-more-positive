@@ -1,5 +1,3 @@
-Chapter 6: Improving Well-Being Through Gratitude
-=================================================
 
 Gratitude has been linked to a range of benefits for individuals in the workplace, including improved mental health, increased resilience, and greater job satisfaction. By cultivating a more grateful mindset, individuals can experience a greater sense of well-being and fulfillment. In this chapter, we'll explore some effective strategies for improving well-being through gratitude.
 

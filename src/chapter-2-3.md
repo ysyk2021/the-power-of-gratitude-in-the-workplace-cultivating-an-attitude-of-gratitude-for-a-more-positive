@@ -1,5 +1,3 @@
-Building Skills for Practicing Gratitude Effectively
-====================================================
 
 In order to cultivate an attitude of gratitude in the workplace, it is essential to develop certain skills that help us effectively practice and express gratitude. These skills not only enhance our own positive work experience but also create a more harmonious and motivated work environment for everyone involved. In this chapter, we will explore some key skills that can be honed to ensure gratitude becomes a natural part of our work lives.
 

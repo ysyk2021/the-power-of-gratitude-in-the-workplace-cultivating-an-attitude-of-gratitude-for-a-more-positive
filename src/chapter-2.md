@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of Gratitude
-==================================================
 
 In this chapter, we'll explore the benefits of gratitude for individuals and organizations in the workplace. We'll also identify different types of gratitude and their effects on workplace culture, as well as building skills for practicing gratitude effectively.
 

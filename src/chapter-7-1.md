@@ -1,5 +1,3 @@
-Understanding the Different Technologies and Tools Available for Practicing Gratitude in the Workplace
-=================================================================================================================
 
 In today's digital age, numerous technologies and tools have emerged to enhance our work experience and facilitate communication. Similarly, these advancements have extended to promoting gratitude in the workplace. This chapter explores various technologies and tools available that can assist us in cultivating an attitude of gratitude at work.
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Gratitude in the Workplace
-=====================================================
 
 Defining Gratitude and Its Importance in the Workplace
 ------------------------------------------------------

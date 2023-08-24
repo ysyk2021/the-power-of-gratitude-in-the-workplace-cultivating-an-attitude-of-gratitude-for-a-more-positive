@@ -1,5 +1,3 @@
-Developing Strategies for Improving Well-being through Gratitude
-===========================================================================
 
 In this chapter, we will explore various strategies that can be employed to enhance well-being in the workplace through cultivating an attitude of gratitude. By embracing gratitude as a core value, individuals and organizations can create a more positive work experience and foster a thriving work environment.
 

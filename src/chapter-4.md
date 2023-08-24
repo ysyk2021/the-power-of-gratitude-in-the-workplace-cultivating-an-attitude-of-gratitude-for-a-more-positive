@@ -1,5 +1,3 @@
-Chapter 4: Practicing Gratitude at Work
-=======================================
 
 Practicing gratitude in the workplace can have a significant impact on employee well-being and productivity. By acknowledging the good things in our lives, we can cultivate a more positive outlook and increase our overall sense of fulfillment. In this chapter, we'll explore some effective strategies for practicing gratitude at work.
 
