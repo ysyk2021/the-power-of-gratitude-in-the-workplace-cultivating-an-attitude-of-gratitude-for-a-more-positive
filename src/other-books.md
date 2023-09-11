@@ -1,14 +1,14 @@
 
 Want get more our free books? click here: [https://zhengpublishing.com/subscribe/](https://zhengpublishing.com/subscribe/)
 
-- [Goal Setting for Managers: Developing Skills and Techniques to Set Goals that Drive Results](https://zhengpublishing.com/goal-setting-for-managers-developing-skills-and-techniques-to-set-goals-that-drive-results/)
-- [ChatGPT and Food Industry: AI for Menu Optimization and Recipes](https://zhengpublishing.com/chatgpt-and-food-industry-ai-for-menu-optimization-and-recipes/)
+- [The AI-Led Life: Relying on Artificial Intelligence for Optimal Living](https://zhengpublishing.com/the-ai-led-life-relying-on-artificial-intelligence-for-optimal-living/)
+- [The Relentless Pursuit of Performance: Using Cycles to Achieve Consistent Improvement](https://zhengpublishing.com/the-relentless-pursuit-of-performance-using-cycles-to-achieve-consistent-improvement/)
 - [The Art of Gratitude Journaling: Using Gratitude Journaling for a More Positive and Fulfilling Life](https://zhengpublishing.com/the-art-of-gratitude-journaling-using-gratitude-journaling-for-a-more-positive-and-fulfilling-life/)
-- [Transitioning to a Remote Workforce: Strategies for Success](https://zhengpublishing.com/transitioning-to-a-remote-workforce-strategies-for-success/)
-- [The Office AI Handbook: A Comprehensive Guide to Leveraging Technology for Enhanced Performance and Results](https://zhengpublishing.com/the-office-ai-handbook-a-comprehensive-guide-to-leveraging-technology-for-enhanced-performance-and-results/)
-- [AI for Stress Management: Techniques and Strategies to Manage Stress with Technology](https://zhengpublishing.com/ai-for-stress-management-techniques-and-strategies-to-manage-stress-with-technology/)
-- [The Art of Intention: Techniques for Manifesting Your Dreams and Personal Growth](https://zhengpublishing.com/the-art-of-intention-techniques-for-manifesting-your-dreams-and-personal-growth/)
-- [The Ultimate Interview Guidebook: All the Interview Questions You Need to Know](https://zhengpublishing.com/the-ultimate-interview-guidebook-all-the-interview-questions-you-need-to-know/)
-- [Interviewing for Success: Essential Skills for Navigating Any Interview](https://zhengpublishing.com/interviewing-for-success-essential-skills-for-navigating-any-interview/)
-- [The Resilient Leader: How to Build Resilience and Lead with Confidence](https://zhengpublishing.com/the-resilient-leader-how-to-build-resilience-and-lead-with-confidence/)
+- [The Startup Manifesto: Essential Strategies for Launching and Scaling Your Business](https://zhengpublishing.com/the-startup-manifesto-essential-strategies-for-launching-and-scaling-your-business/)
+- [Bouncing Back: How to Build Resilience and Overcome Setbacks in Life and Work](https://zhengpublishing.com/bouncing-back-how-to-build-resilience-and-overcome-setbacks-in-life-and-work/)
+- [AI for Journalism: Techniques and Strategies for More Effective News Writing with Technology](https://zhengpublishing.com/ai-for-journalism-techniques-and-strategies-for-more-effective-news-writing-with-technology/)
+- [The AI Empowerment Companion: Techniques and Strategies for Personal Growth and Fulfillment with Artificial Intelligence](https://zhengpublishing.com/the-ai-empowerment-companion-techniques-and-strategies-for-personal-growth-and-fulfillment-with-artificial-intelligence/)
+- [Building ChatGPT Apps: A Developer's Guide to Creating Intelligent Chatbots](https://zhengpublishing.com/building-chatgpt-apps-a-developers-guide-to-creating-intelligent-chatbots/)
+- [The Personal Branding Mindset for Professionals: How to Think Like a Brand](https://zhengpublishing.com/the-personal-branding-mindset-for-professionals-how-to-think-like-a-brand/)
+- [From List Maker to Leader: Essential Techniques for Achieving Greater Success](https://zhengpublishing.com/from-list-maker-to-leader-essential-techniques-for-achieving-greater-success/)
 
